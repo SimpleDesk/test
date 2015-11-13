@@ -1,1 +1,1 @@
-Do not speak to me! Do not alter your normal human behavior in any way! You know not the elaborate criteria by which you are to be judged! Ignore my presence and go about your Earthly business!
+Do not speak to me! Do not alter your normal human behavior in any way! You know not the elaborate criteria by which you are to be judged! Ignore my presence and go about your Earthly business!!
